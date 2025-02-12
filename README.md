@@ -1,2 +1,4 @@
 # Miro
-Entrega De Wirefrime Ecommerce Personal
+Entrega De Wireframe Ecommerce Personal
+Paola Herrera 
+https://miro.com/welcomeonboard/NmhKTXV0T3IvY01WdHZpQkdKOHhMWUN6NWlJcVJLV3lTb0Fvd1JGVGloOU9MTG1iUSsxQkZTenc4UTFra1YwcXdQdkgvNkI1bkdqVGt5WTUrMVBzWTlVLzFVUEJiWTZCUTNiNXFHcVUvcTRVSzhVRm42bWhtV01sRjlCOWlyMU9NakdSWkpBejJWRjJhRnhhb1UwcS9BPT0hdjE=?share_link_id=350423098323
